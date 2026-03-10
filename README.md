@@ -1,0 +1,1 @@
+# An-lise-de-sinais-de-glicose
